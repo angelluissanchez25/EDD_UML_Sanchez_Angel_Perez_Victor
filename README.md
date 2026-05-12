@@ -1,3 +1,0 @@
-# EDD_UML_Sanchez_Angel_Perez_Victor
-
-hola
